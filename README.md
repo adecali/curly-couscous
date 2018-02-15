@@ -2,21 +2,23 @@
 CouCousCous
 
 Etape 1
-Préparation de la semoule :
-
-
-
+Préparation de la semoule 
 
 Etape 2
 Verser la semoule dans un grand récipient et la noyer avec l'eau. Remuer doucement.
+
 Etape 3
 Égoutter la semoule quand l'eau devient blanche
+
 Etape 4
 Laisser reposer 15-20 mn (30 maxi), saler (1 cuillère à soupe rase), huiler (1 cuillère à soupe).
+
 Etape 5
 Malaxer pour briser les mottes.
+
 Etape 6
-Cuisson de la semoule :
+Cuisson de la semoule 
+
 Etape 7
 Dans une couscoussière de 5 litres, remplir à moitié d'eau la partie basse et verser la semoule dans la partie haute (ne pas mettre de couvercle).
 Etape 8
