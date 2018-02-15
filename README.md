@@ -1,16 +1,16 @@
 # curly-couscous For The Best #TeamMatin!
 CouCousCous
 
-Etape 1 :
+**Etape 1 :**
 Préparation de la semoule 
 
-Etape 2 :
+**Etape 2 :**
 Verser la semoule dans un grand récipient et la noyer avec l'eau. Remuer doucement.
 
-Etape 3 :
+**Etape 3 :**
 Égoutter la semoule quand l'eau devient blanche
 
-Etape 4 :
+**Etape 4 :**
 Laisser reposer 15-20 mn (30 maxi), saler (1 cuillère à soupe rase), huiler (1 cuillère à soupe).
 
 Etape 5 :
