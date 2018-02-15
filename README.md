@@ -5,6 +5,8 @@ Etape 1
 Préparation de la semoule :
 
 
+
+
 Etape 2
 Verser la semoule dans un grand récipient et la noyer avec l'eau. Remuer doucement.
 Etape 3
